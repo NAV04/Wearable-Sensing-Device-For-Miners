@@ -1,0 +1,1 @@
+# Wearable-Sensing-Device-For-Miners
